@@ -1,6 +1,6 @@
 Here's a list of the osu! skins that I usually use on stream
 
-*(if it isn't obvious I don't own these skins i just stole them)*
+*(if it isn't obvious I didn't make these skins i just stole them)*
 
 If you notice I keep on using a skin that isn't shown, annoy me to update this :smile:
 
